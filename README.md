@@ -5,4 +5,4 @@ for a brief summary, i go by Newsian or News, choose whichever you feel most com
 
 for more information about myself refer to my (TBA). **public socials will be listed here, please _ask_ to follow my private accounts.** unless i already follow you first, of course.
 
-anyway, don't be afraid to become oomfs! my Roblox user is Guest_92339, its display is News. Discord is certifiednews, its display is n.
+anyway, don't be afraid to become oomfs! Discord is certifiednews, its display is n.
